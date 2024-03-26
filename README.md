@@ -1,4 +1,4 @@
-Embark on an infinite journey through the boundless expanse of the cosmos in "Space Void Traveler Simulator." by Przepełniacze Stosu! In this mesmerizing simulation game, you take on the role of a lone traveler navigating the mysterious void of space through endless times.This thought-provoking game will put some real questions into your mind, like: Who are we? Where are we going? Is this even real?
+Embark on an infinite journey through the boundless expanse of the cosmos in "Space Void Traveler Simulator." by Przepełniacze Stosu! In this mesmerizing simulation game, you take on the role of a lone traveler navigating the mysterious void of space through endless times. This thought-provoking game will put some real questions into your mind, like: Who are we? Where are we going? Is this even real?
 Will you unravel the secrets of the universe, or will you become lost in the eternal expanse of space? The choice is yours.
 #Available on Steam: 29.02.2025#
 
